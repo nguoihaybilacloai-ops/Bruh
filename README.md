@@ -1,1 +1,1 @@
-# Bruh
+# what even is coding about
